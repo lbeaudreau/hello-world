@@ -1,1 +1,2 @@
 # hello-world
+# My name is Lauren Beaudreau and I am in the MSBA program at the University of Notre Dame. I completed my undergraduate degree at ND as well in marketing. I have been a member of the women's golf team for the past 5 years and am using my last year of eligibility currently. I am from Lemont, Illinois but plan on moving after graduation. I love to travel and have visited over 20 countries. Besides golf, my other passions include playing the piano and being outdoors!
